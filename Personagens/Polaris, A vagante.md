@@ -20,4 +20,3 @@ Paladina de Céris, deusa menor da luz guia, Polaris é uma humanoide alta e rob
 #### voz
 #### modo de agir
 
-Assddsadsdaa
